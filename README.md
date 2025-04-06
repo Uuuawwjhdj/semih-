@@ -1,2 +1,1 @@
-# semih-
-I'm autistic 
+.
